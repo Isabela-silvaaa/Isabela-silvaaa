@@ -11,4 +11,8 @@
 
 -Gosto de ouvir música.
 
+-Estudo na escola Republica Oriental do Uruguai 
+
+-Estou no ensino medio
+
 
